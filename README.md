@@ -1,4 +1,4 @@
-# Getting Started with Programming the Minecraft Worldqkwertyu
+# Getting Started with Programming the Minecraft Worldqkwertyuujjjjjjjjjjjjjjjj
 
 ![](cover.png)
 
